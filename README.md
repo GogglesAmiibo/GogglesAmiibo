@@ -1,11 +1,7 @@
-Hi im Goggles / Luna / Astrodude!
-
-he/they/xem guh
-
-top interests; Splatoon, Kaiju paradise, coroika, Solarballs, Slay the Princess :3 
-
-I dont mind taking inspo from my skins on ponytown. but DONT copy the whole skin please.
-
-Feel free to int! :D
-
-lalalalalala
+нι ιм gσggℓєѕ / ℓυηα / αѕтяσ∂υ∂є! 
+нє/тнєу/χєм gυн 
+тσρ ιηтєяєѕтѕ; ѕρℓαтσση, кαιנυ ραяα∂ιѕє, ¢σяσιкα, ѕσℓαявαℓℓѕ, ѕℓαу тнє ρяιη¢єѕѕ :3 
+ι ∂σηт мιη∂ тαкιηg ιηѕρσ ƒяσм му ѕкιηѕ ση ρσηутσωη. вυт ∂σηт ¢σρу тнє ωнσℓє ѕкιη ρℓєαѕє.
+ƒєєℓ ƒяєє тσ ιηт! :∂ 
+ℓαℓαℓαℓαℓαℓα
+🌀🍓
