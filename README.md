@@ -1,5 +1,7 @@
 🌀🍓 ; нι ιм gσggℓєѕ / ℓυηα / αѕтяσ∂υ∂є!
 
+[![HitCount](https://hits.dwyl.com/GogglesAmiibo/GogglesAmiibo.svg?style=flat-square)](http://hits.dwyl.com/GogglesAmiibo/GogglesAmiibo)
+
 -нє/тнєу/χєм gυн 
 
 -тσρ ιηтєяєѕтѕ; ѕρℓαтσση, кαιנυ ραяα∂ιѕє, ¢σяσιкα, ѕσℓαявαℓℓѕ, ѕℓαу тнє ρяιη¢єѕѕ αη∂ ∂αη∂у'ѕ ωσяℓ∂
