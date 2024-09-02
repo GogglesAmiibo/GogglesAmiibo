@@ -28,6 +28,7 @@ profile views : [![HitCount](https://hits.dwyl.com/GogglesAmiibo/GogglesAmiibo.s
 ˗ˏˋ ★ ˎˊ˗ 🌱
 
 σтнєя ιηƒσ αвσυт мє!;
+
 -ι ρℓαу тнє ƒℓυтє αη∂ кєувσαя∂ :3
 
 -ι'м ιηтσ ѕρα¢є ѕσ ι'м ℓєαяηιηg мσяє αвσυт ιт!
